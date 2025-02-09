@@ -1,1 +1,1 @@
-# Welcome to oregonnerds.com! If you got here by scanning the qr code in one of my comics, also welcome! I don't know what to do with this website so I suppose that I'll just use it as my personal page.
+Hello. Thank you for reading my comics! I hope you've enjoyed them. I plan on making more of these comics, but for now, these are my 6th grade comics. And if you didn't read them, go read them!
