@@ -1,1 +1,1 @@
-# Pigmuffin5970.github.io
+# Welcome to oregonnerds.com! If you got here by scanning the qr code in one of my comics, also welcome! I don't know what to do with this website so I suppose that I'll just use it as my personal page.
